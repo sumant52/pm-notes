@@ -13,4 +13,7 @@
 ![Sytem approach](https://www.researchgate.net/profile/Maria-Guimaraes/publication/257692073/figure/fig3/AS:436378560405506@1481052164215/System-Approach-sequence-of-steps-Adapted-from-SPICOSA-work-document.png)
 
 
-![image](C:\Users\S543695\Downloads\sumant.jpg)
+
+
+
+[image](C:\Users\S543695\Downloads\sumant.jpg)
