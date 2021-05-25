@@ -12,10 +12,5 @@
 --------
 ![Sytem approach](https://www.researchgate.net/profile/Maria-Guimaraes/publication/257692073/figure/fig3/AS:436378560405506@1481052164215/System-Approach-sequence-of-steps-Adapted-from-SPICOSA-work-document.png)
 
-![image](https://mail.google.com/mail/u/0?ui=2&ik=d878a54f5f&attid=0.1&permmsgid=msg-a:r-7264313685607061901&th=1795cf86c3ecedd4&view=att&disp=safe&realattid=1795cf85eb63f5adf11.jpg)
+![image](https://mail.google.com/mail/u/0/?tab=rm&ogbl#starred/QgrcJHsbhNpCdLNwLPztnwlZZQPrZdcMjlG?projector=1&messagePartId=0.1.jpg)
 
-
-
-
-
-![photo](https://mail.google.com/mail/u/0?ui=2&ik=d878a54f5f&attid=0.1&permmsgid=msg-a:r-7264313685607061901&th=1795cf86c3ecedd4&view=att&disp=safe&realattid=1795cf85eb63f5adf11.jpg)
